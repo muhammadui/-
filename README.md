@@ -23,3 +23,11 @@ Na haneku da yin zato, domin zato mafi karyan labari ceh.
 Manzon Allah tsira da amincin Allah su tabbata a gareshi yace:  
 Imanin dayan ku baya cika, har sai yaso wa dan uwansa abunda yake so wa kansa.  
 ~Bukhari da Muslim neh suka rawai toh.
+
+
+### Hadisi Na Hudu [4]
+
+- Ankarbo da Nu'uman dan Bashir, Allah ya kara masa yarda yace:  
+Manzon Allah tsira da amincin Allah su tabbata a gareshi yace:  
+Kuji tsoron Allah, kuyi adalci a tsakanin ƴaƴa yen ku.  
+~Bukhari da Muslim neh suka rawai toh.
